@@ -1,5 +1,5 @@
 Hiii! |
-You can call me either lucy / marti |
+You can call me either lucy / miu |
 <3 |
 she / her
 
